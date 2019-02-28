@@ -1,4 +1,4 @@
-#Mikita Rudnik#
+#Mikita Rudnik
 2. email: ridge2006@mail.ru, phone: +375 29 9090854
 discord: enot_00
 3. From childhood, I like science and technic so nowadays I like technical tasks, quickly sort out and try to solve it. I like unusual elegant solutions in technic very much and usually adhere to the principles «everything can be done better than done so far» and «everything that is created by man can be sorted out». Every task I take to solve becomes personal challenge for me and I won’t stop before I solve it.   
